@@ -1,1 +1,0 @@
-# makine-ogrenmesi-bahar-vize
